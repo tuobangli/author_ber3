@@ -1,2 +1,2 @@
 # author_ber3
-I will resend emails to everyone with a different topic, and then they can select the one that they reply.
+REDS_mean T L N Z
