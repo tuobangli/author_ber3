@@ -1,2 +1,2 @@
 # author_ber3
-stop finding more
+I sent emails to six stat prof for high-dimensional.
