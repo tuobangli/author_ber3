@@ -2,4 +2,4 @@
 stop find more stat prof for high-dimensional.
 
 
-N Z 1 cores, S M 1, S D final cores
+N Z 1 cor, S M 1, S D final cor
