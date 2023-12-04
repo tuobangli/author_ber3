@@ -1,3 +1,3 @@
 # author_ber3
 
-traveling to US
+visit UC Berkeley as a prospect student
