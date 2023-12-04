@@ -1,3 +1,3 @@
 # author_ber3
 
-contact Donoho
+traveling to US
