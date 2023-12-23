@@ -1,3 +1,3 @@
 # author_ber3
 
-visit UC Berkeley as a prospect student
+cancel the booking of flight from Jalarta to Hong Kong on Tuesday.
