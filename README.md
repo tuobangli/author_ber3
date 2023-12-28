@@ -1,1 +1,1 @@
-to Seoul
+to Jeju
