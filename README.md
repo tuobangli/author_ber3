@@ -1,1 +1,1 @@
-don't transit in Hong Kong.
+to saipan tomorrow 
