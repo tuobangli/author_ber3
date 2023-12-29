@@ -1,3 +1,1 @@
-to Jeju
-
-5
+don't transit in Hong Kong.
