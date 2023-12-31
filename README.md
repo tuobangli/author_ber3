@@ -1,3 +1,1 @@
-to saipan tomorrow 
-
-4
+Century Hotel
