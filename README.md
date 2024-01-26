@@ -1,1 +1,1 @@
-book another b2 appointment. 
+book a J-1 appointment. 
