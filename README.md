@@ -1,1 +1,1 @@
-book another b2 appointment. 6
+book another b2 appointment. 
