@@ -1,3 +1,3 @@
-book a J-1 appointment in Hong Kong on 29 Jan
+book a J-1 appointment in Hong Kong on 31 Jan
 
 15
