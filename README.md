@@ -1,1 +1,1 @@
-Submit this to Arxiv
+Replace this manuscript with REDS:mean to Arxiv
