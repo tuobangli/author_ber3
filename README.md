@@ -1,3 +1,3 @@
 Submit REDS:mean to PNAS
 
-Modified REDS:Mean
+Address, UC Berkeley
